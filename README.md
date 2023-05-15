@@ -1,2 +1,2 @@
 # testing.
-testing repo telugu skil hub apple
+testing repo telugu skil hub appleee
